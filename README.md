@@ -1,0 +1,2 @@
+# Ideas
+funny project ideas
